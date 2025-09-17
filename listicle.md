@@ -6,3 +6,4 @@
 - [**synyster gates**](https://en.wikipedia.org/wiki/Synyster_Gates)
 - [**kurk cobain**](https://en.wikipedia.org/wiki/Kurt_Cobain)
 - [**jerry cantrell**](https://en.wikipedia.org/wiki/Jerry_Cantrell)
+-**thank you**
